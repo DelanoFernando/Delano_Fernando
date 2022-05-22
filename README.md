@@ -1,4 +1,4 @@
-# Delano_Fernando
+# Delano Fernando
 About Me
 
 The ability to adapt is to be able to survive,
